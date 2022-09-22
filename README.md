@@ -26,7 +26,7 @@
 
 ## Explaination Video
 
-> **You can watch the e xplaination video in arabic** [here](https://drive.google.com/file/d/1EoeybdihPErTWRs-lCI4gnE4E6pIje6k/view?usp=sharing).
+> **You can watch the e xplaination video in arabic** [here](https://drive.google.com/file/d/1xc1sXiBg9BBzJa97DDbBG0EnJzIp6HtT/view?usp=sharing).
 ##
 
 
